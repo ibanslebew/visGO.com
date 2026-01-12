@@ -1,1 +1,0 @@
-# visGO.com
